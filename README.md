@@ -1,1 +1,1 @@
-![](https://media4.giphy.com/media/Sr9PmKyyzqK0Qx21oc/giphy.gif)
+![]([https://media4.giphy.com/media/Sr9PmKyyzqK0Qx21oc/giphy.gif](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.cbc.ca%2Fkidsnews%2Fpost%2F5-things-to-know-about-andrew-tate-and-why-he-was-arrested&psig=AOvVaw0qP8A03sV_cF-D8krTNYhZ&ust=1674389043549000&source=images&cd=vfe&ved=0CA8QjRxqFwoTCMDprrTP2PwCFQAAAAAdAAAAABAE))
